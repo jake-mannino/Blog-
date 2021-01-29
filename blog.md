@@ -1,4 +1,4 @@
-**# Jake's Blog**
+**#Jake's Blog**
 ## **Week One January 29th**
 ### 1. I wasn't really sure what to expect in week one. Looking back I think that the amount of information was overwhelming at first, but I got more comfortable as I worked through the projects and courses online I found I was able to compartmentalize everything better and feel less intimidated by it.
 ### 2. This week was an adjustment for me. I struggled some with effeciently organizing how I studied and processed all the information. Also was working more this week so I think asking my boss for more hours off to focus better on this bootcamp will make a difference. Going forward I not only want to make more time in my day for absorbing all this information and practice applying it, but I also make a more structured, effecient and effective study routine. Visual aids and actually doing more rather than just reading and watching helps since I'm more of a kinesthetic learner. Also prioritizing tasks so I don't get lost and waste time trying to fully understand something that is more tangential to the main objectives of the week.
